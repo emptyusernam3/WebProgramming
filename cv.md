@@ -84,5 +84,4 @@ C#
 
 ## English Language
 My English is pretty good, i can freely communicate with native speakers.
-(https://images.wallpaperscraft.ru/image/single/kot_morda_agressiia_56702_3072x2035.jpg)
-![Photo](https://yandex.by/images/search?img_url=https%3A%2F%2Fwallpapers.net%2Fangry-cat-hd-wallpaper%2Fdownload%2F5120x2160.jpeg&lr=158&pos=1&rpt=simage&source=serp&text=кот)
+![Photo](https://images.wallpaperscraft.ru/image/single/kot_morda_agressiia_56702_3072x2035.jpg)
