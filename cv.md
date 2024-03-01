@@ -84,6 +84,5 @@ C#
 
 ## English Language
 My English is pretty good, i can freely communicate with native speakers.
-
-![My pfp](https://yandex.by/images/search?from=tabbar&img_url=https%3A%2F%2Ffons.pibig.info%2Fuploads%2Fposts%2F2023-06%2F1687181673_fons-pibig-info-p-kot-v-naushnikakh-oboi-pinterest-6.jpg&lr=158&pos=3&rpt=simage&text=кот%20в%20наушниках%20мем](https://yandex.by/images/search?img_url=https%3A%2F%2Fwww.tapeciarnia.pl%2Ftapety%2Fnormalne%2F116737_kotek_muzyka_sluchawki.jpg&lr=158&pos=1&rpt=simage&source=serp&text=кот%20в%20наушниках)https://yandex.by/images/search?img_url=https%3A%2F%2Fwww.tapeciarnia.pl%2Ftapety%2Fnormalne%2F116737_kotek_muzyka_sluchawki.jpg&lr=158&pos=1&rpt=simage&source=serp&text=кот%20в%20наушниках](https://i.ytimg.com/vi/-3rHuUn85VU/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AH-CYAC0AWKAgwIABABGHIgVShDMA8=&amp;rs=AOn4CLBRQT7o5bbeGmjytfFLDvI64yd4QA)https://i.ytimg.com/vi/-3rHuUn85VU/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AH-CYAC0AWKAgwIABABGHIgVShDMA8=&amp;rs=AOn4CLBRQT7o5bbeGmjytfFLDvI64yd4QA)
-
+(https://images.wallpaperscraft.ru/image/single/kot_morda_agressiia_56702_3072x2035.jpg)
+![Photo](https://yandex.by/images/search?img_url=https%3A%2F%2Fwallpapers.net%2Fangry-cat-hd-wallpaper%2Fdownload%2F5120x2160.jpeg&lr=158&pos=1&rpt=simage&source=serp&text=кот)
